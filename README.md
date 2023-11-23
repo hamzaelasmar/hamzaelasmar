@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming and football
 - 🌱 I’m currently learning html css
 - 💞️ I’m looking to collaborate on minecraft clients
-- 📫 Discord: ahamzaboi u can contact me there
+- 📫 Discord: rlyvision u can contact me there
 
 
 
